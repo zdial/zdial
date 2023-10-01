@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @zdial
+- 👀 I’m interested in coding, web development, business & games.
+- 🌱 I’m currently learning coding and web development
+- 💞️ I’m looking to collaborate on coding projects and web development projects!
+- 📫 How to reach me:
+- gmail: Ethandnguyen0205@gmail.com
+- Discord: zdial
